@@ -1,3 +1,8 @@
-# Past Career Experience
-1. I have had work at Big Y Whole foods, which has helped me get experience with working with customers and consumers, the job has helped me learn the basics of how corporate jobs are and taught me to put 
-2. I have worked at New England Six Flags in the past as a ride operater, so working with machinary is not new and the same goes for controlling safety requirements as riders can be at risk if safety protocals are not taken seriously. 
+# Initial Post
+
+This is my first of many posts as I hope to increase my total experience at the University of Connecticut as I join more clubs and take more classes. I hope to expand my experiences to grow not just my career, but to grow my character as a whole. 
+
+# Fun Facts About Me:
+I like solving puzzles such as rubik's cubes. I have solved the standard 3x3x3, the 2x2x2, a 3x2x2, a rubik's pyramix, a megaminx, and the ivy cube.
+
+Another fun fact is that prior to becoming a physics major at the University of Connecticut, I was considering to be a statistics major and was a computer science major.
